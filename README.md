@@ -1,2 +1,2 @@
 # Portfólio
- Portfólio do Josiane Magalhães
+ Portfólio de Josiane Magalhães
